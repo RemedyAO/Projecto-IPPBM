@@ -1,2 +1,0 @@
-# Projecto-IPPBM
-KUENHOS
